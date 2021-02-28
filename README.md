@@ -1,6 +1,9 @@
 # economist-2021
 2021年来了~继续更新
 资源目前仍旧来自于ebook3000 & 知乎寻路小司机
+https://quqi.com/3992694/0 
+2020年全集https://cloud.189.cn/t/2Eb26jB32uAz （访问码：icx7） 
+2021年更新https://cloud.189.cn/t/QVnMFrYj6zA3 （访问码：6zw8）
 
 2021-01-02  bdy链接: https://pan.baidu.com/s/1B1K6sKmxf8-MnBrBggN1Kw 提取码: wi64 复制这段内容后打开百度网盘手机App，操作更方便哦
 quqi链接 https://quqi.gblhgk.com/s/2053462/FVumM9ijB3XT8Z11 查阅码 HFcbyZ
